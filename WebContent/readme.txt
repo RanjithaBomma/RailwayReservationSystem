@@ -1,0 +1,1 @@
+This template is under the Creative Commons Attribution 2.5 License. That's mean you can modify the design to suit your needs but you must provided a link back to WebTemplatePortal.com
